@@ -16,7 +16,7 @@ Figma • Procreate • Illustrator • Notion • Pen & Paper ✏️
 Feel free to check out my work or reach out — I’m always open to feedback, ideas, and creative collaboration 🤝
 ## 😎 Connect with me
 
-[![Instagram](https://ziadoua.github.io/m3-Markdown-Badges/badges/Instagram/instagram1.svg)](https://www.instagram.com/your_instagram/) [![Telegram](https://ziadoua.github.io/m3-Markdown-Badges/badges/Telegram/telegram1.svg)](https://t.me/your_telegram/) [![Email](https://ziadoua.github.io/m3-Markdown-Badges/badges/Mail/mail2.svg)](alysavas@gmail.com) [![LinkedIn](https://ziadoua.github.io/m3-Markdown-Badges/badges/LinkedIn/linkedin1.svg)](https://www.linkedin.com/in/alisa-vass-294558173/)) 
+[![Instagram](https://ziadoua.github.io/m3-Markdown-Badges/badges/Instagram/instagram1.svg)](https://www.instagram.com/your_instagram/) [![Telegram](https://ziadoua.github.io/m3-Markdown-Badges/badges/Telegram/telegram1.svg)](https://t.me/your_telegram/) [![Email](https://ziadoua.github.io/m3-Markdown-Badges/badges/Mail/mail2.svg)](alysavas@gmail.com) [![LinkedIn](https://ziadoua.github.io/m3-Markdown-Badges/badges/LinkedIn/linkedin1.svg)](https://www.linkedin.com/in/alisa-vass-294558173/)
 
 > 
 
