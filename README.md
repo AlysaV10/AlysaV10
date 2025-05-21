@@ -1,6 +1,5 @@
 
-![Uploading abstract-colorful-pixel-background.jpg…]()
-
+![](https://i.imgur.com/waxVImv.png)
 # 👋 Hello there!
 
 I'm a **graphic designer** with 7+ years of experience in the print industry — now shifting into the exciting world of **UX/UI design** 🎨✨  
@@ -9,13 +8,13 @@ Currently, I’m **learning UX design** through the **Google UX Design Certifica
 ## 🌱 What I’m working on:
 - Gaining hands-on UX experience through real-world projects  
 - Building a portfolio of thoughtful, human-centered designs  
-
+![](https://i.imgur.com/waxVImv.png)
 ## 🛠️ Tools I love:
 Figma • Procreate • Illustrator • Notion • Pen & Paper ✏️
 
 ## 📫 Let’s connect!
 Feel free to check out my work or reach out — I’m always open to feedback, ideas, and creative collaboration 🤝
 
----
+![](https://i.imgur.com/waxVImv.png)
 
 Thanks for stopping by! 🚀  
